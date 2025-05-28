@@ -24,4 +24,4 @@ At Januscaler, we envision a world where seamless communication is effortlessly 
 
 ## Get in Touch
 
-To learn more about our products or discuss collaboration opportunities, reach out to us at [info@januscaler.com](mailto:info@januscaler.com). Follow us on [Twitter](https://twitter.com/januscaler) for updates and insights into our developments.
+To learn more about our products or discuss collaboration opportunities, reach out to us at [info@januscaler.com](mailto:admin@januscaler.com). Follow us on [LinkedIn](https://www.linkedin.com/company/januscaler/) for updates and insights into our developments.
